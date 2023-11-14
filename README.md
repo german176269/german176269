@@ -7,7 +7,7 @@
 
 - 🤝🏻👥 I’m looking to collaborate on [my UTN team](https://github.com/CodeSystem2022/E-Comers-Terror-Al-Ejecutar)
 
-- 💬🗣️ Ask me about **hardware & software**
+- 💬🗣️ Ask me about **software & hardware**
 
 - 📩 How to reach me **abalosgerman@hotmail.com**
 
